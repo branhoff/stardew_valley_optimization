@@ -1,0 +1,1 @@
+This project is designed to answer the ultimate question... What's the most profitable apportionment of your resources in Stardew Valley... In other words, with compounding in mind, which crops give you the biggest bang for your buck?
